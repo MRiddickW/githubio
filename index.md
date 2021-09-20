@@ -9,7 +9,7 @@ Matthew has also appeared as a studio musician on albums including “**My Musta
 
 Watch the video of Matthew Walton (left) and Jan Ryberg (right) playing Jan's original composition "Flamencool".
 
-##Here's what people are saying about Matthew:
+## Here's what people are saying about Matthew:
 
 #### “Matthew is one of the most talented, not to mention multi-talented, musicians that I know. He is a treat to listen to and to play with. The skill he commands over all of his instruments gives him no limits, he can play any style of music with ease. He makes every song sound good!!”
 ### Kristyn Harris
@@ -17,7 +17,7 @@ Watch the video of Matthew Walton (left) and Jan Ryberg (right) playing Jan's or
 3-time (2014, 2015, & 2018) Western Music Association Female Performer of the Year
 2017 Ameripolitan Music Awards Western Swing Female the Year
 
-#### “You have a great right hand...”
+#### “You have a great right hand”
 ### Pete Huttlinger
 National Fingerstyle Guitar Champion (2000)
 Guitarist for John Denver & LeAnn Rimes
