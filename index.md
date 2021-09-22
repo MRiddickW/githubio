@@ -12,7 +12,7 @@ Watch the video of Matthew playing steel guitar with the Kristyn Harris Band on 
 
 ## Here's what people are saying about Matthew:
 
-> “Matthew is one of the most talented, not to mention multi-talented, musicians that I know. He is a treat to listen to and to play with. The skill he commands over all of his instruments gives him no limits, he can play any style of music with ease. He makes every song sound good!!”
+> “Matthew is one of the most talented, not to mention multi-talented, musicians that I know. He is a treat to listen to and to play with. The skill he commands over all of his instruments gives him no limits, he can play any style of music with ease. He makes every song sound good!!”  
 <font size="4">Kristyn Harris</font>  
 4-time (2016, 2017, 2018, 2019) International Western Music Association Entertainer of the Year  
 4-time (2014, 2015, 2018, 2019) Western Music Association Female Performer of the Year  
